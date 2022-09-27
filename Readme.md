@@ -62,3 +62,4 @@ Git - это одна из реализаций распределённых с�
 Д.Дидро
 
 ![student](https://cdn.readovka.net/n/1154970/1200x630/2cf13132bf.jpg)
+![brain](https://psychoscanner.com/wp-content/uploads/2016/07/bad4brain09.jpg)
